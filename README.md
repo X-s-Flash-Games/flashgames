@@ -1,2 +1,2 @@
 # flashgames
-100s of Flash Games to download
+If you use any of this flash games credit Xylitol
